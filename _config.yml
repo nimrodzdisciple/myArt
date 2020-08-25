@@ -1,7 +1,7 @@
 # Site settings
-title: PHOTORAMA
+title: myArt
 email: ""
-description: "Photo Journal"
+description: "Art Journal"
 url: "https://nimrodzdisciple.github.io"
 baseurl: "/photorama"
 facebook_username: ""
