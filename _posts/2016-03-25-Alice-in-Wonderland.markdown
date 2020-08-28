@@ -21,79 +21,96 @@ I’ll send you the demo when I can get it done
 
 
  (Mommy daddy)
-[This part is spoken /rapped]  Only cold water runs through the faucet at night
-Bathroom floor is as cold as ice
-Tried to get the landlord to fix that pipe
-But he only comes around when his money aint right
-Neighbor to the left all they do is cuss
-Neighbors up top all they do is f---
+ 
+[This part is spoken /rapped]  Only cold water runs through the faucet at night.
+Bathroom floor is as cold as ice.
+Tried to get the landlord to fix that pipe.
+But he only comes around when his money aint right.
+Neighbor to the left all they do is cuss.
+Neighbors up top all they do is f---.
+
 [hook]
-[this part is sung] On mommy, daddy
-Your baby girl wants to come back home
-Can your little girl come back home
-mommy, daddy
-Your baby girl wants to come back home
-[this line sung in a baby voice.]Can your widdle  girl come back home 
+
+[this part is sung] On mommy, daddy.
+Your baby girl wants to come back home.
+Can your little girl come back home.
+mommy, daddy.
+Your baby girl wants to come back home.
+[this line sung in a baby voice.]Can your widdle  girl come back home
+C2020Tccmardukson
 *********************************************************
 Song two
+
 (scare her)
-I swam up the river
-And  everybody screamed
-Itz easier to go down stream
-I swam up the river
-And somebody cried
-Stop her right now
-Shez waking up from the dream
+
+I swam up the river.
+And  everybody screamed.
+Itz easier to go down stream.
+I swam up the river.
+And somebody cried.
+Stop her right now.
+Shez waking up from the dream.
+
 Hook [sung along with choir]
-One monkey can stop a show
-We can not let her go
-Nobody can be allowed
-To think outside of the crowd
-Scare her scare her
-Let her know what happens
-To little thoughts who stray from the herd
-Scare her scare her
-Scare her back to napping
-Let out the predators
+
+One monkey can stop a show.
+We can not let her go.
+Nobody can be allowed.
+To think outside of the crowd.
+Scare her scare her.
+Let her know what happens.
+To little thoughts who stray from the herd.
+Scare her scare her.
+Scare her back to napping.
+Let out the predators.
+
 C2020Tccmardukson
+
 **************************************************
 Third song
+
 (rebel)
-Rebel
-Even now I tremble at the thought of the way you touched me
-Rebel
-Where are you now remember what you promised for the way that you left me
-You said you’d be back to finish what you started
-Til you come back I’m living empty hearted
-You had to run so I had to let go
-Before you were done 
-But I can’t forget your
-Rebel
-Kiss on my lips in the shadow of the man who
-Swore for
-All that he live he’d kill you if he got the chance to
+
+Rebel.
+Even now I tremble at the thought of the way you touched me.
+Rebel.
+Where are you now remember what you promised for the way that you left me.
+You said you’d be back to finish what you started.
+Til you come back I’m living empty hearted.
+You had to run so I had to let go.
+Before you were done. 
+But I can’t forget your.
+Rebel.
+Kiss on my lips in the shadow of the man who.
+Swore for.
+All that he live he’d kill you if he got the chance to.
+
 C2020Tccmardukson
 ********************************
 
 Fourth song
+
 (love don’t wait)
-I wanted a pair
-You only wanted hitz
-It wasn’t there
-Don’t try to bring love into this
-Now
-I wanna go
-You wanna hold on
-I loved you so
-You only showed you loved me from
-Now
+
+I wanted a pair.
+You only wanted hitz.
+It wasn’t there.
+Don’t try to bring love into this.
+Now.
+I wanna go.
+You wanna hold on.
+I loved you so.
+You only showed you loved me from.
+Now.
 [hook]
-Love don’t wait
-It only takes too late
-Sometimes
-Itz too late
-You can’t bring love into this
-Now
+
+Love don’t wait.
+It only takes too late.
+Sometimes.
+Itz too late.
+You can’t bring love into this.
+Now.
+
 C2020Tccmardukson
 *******************************
 Song 5
