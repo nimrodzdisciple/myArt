@@ -37,7 +37,7 @@ Neighbors up top all they do is f---.
 
 [hook]
 
-[this part is sung] On mommy, daddy.
+[this part is sung] OH mommy, daddy.
 
 Your baby girl wants to come back home.
 
