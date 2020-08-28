@@ -5,7 +5,7 @@ subtitle:   "ZENDEE ROSE"
 active: journal
 image:
   feature: "1pc001.jpg"
-date:       2016-03-25
+date:       2020-03-25
 header-img: "1img/postcover/pc001.jpg"
 tags: [tag01, tag02]
 categories: [cat01, cat02]
