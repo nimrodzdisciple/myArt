@@ -23,20 +23,32 @@ I’ll send you the demo when I can get it done
  (Mommy daddy)
  
 [This part is spoken /rapped]  Only cold water runs through the faucet at night.
+
 Bathroom floor is as cold as ice.
+
 Tried to get the landlord to fix that pipe.
+
 But he only comes around when his money aint right.
+
 Neighbor to the left all they do is cuss.
+
 Neighbors up top all they do is f---.
+
 
 [hook]
 
 [this part is sung] On mommy, daddy.
+
 Your baby girl wants to come back home.
+
 Can your little girl come back home.
+
 mommy, daddy.
+
 Your baby girl wants to come back home.
+
 [this line sung in a baby voice.]Can your widdle  girl come back home
+
 C2020Tccmardukson
 *********************************************************
 Song two
