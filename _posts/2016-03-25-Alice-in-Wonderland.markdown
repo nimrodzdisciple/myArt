@@ -12,17 +12,22 @@ categories: [cat01, cat02]
 comments: false
 ---
 
-Tailor made for you Zendee . 
+Tailor written for you Zendee . 
 
-For   1st verse and hook of all twelve songs go to my github page here
-Nimr.
+Listed is the 1st verse and the hook of twelve songs for a Pop album.
+
+I got more to choose from if you don't like them all, or if some or to risque for you.
+
 I’ll send you the demo when I can get it done
 
 
+first song
 
  (Mommy daddy)
  
-[This part is spoken /rapped]  Only cold water runs through the faucet at night.
+[This part is spoken /rapped]  
+
+Only cold water runs through the faucet at night.
 
 Bathroom floor is as cold as ice.
 
@@ -37,17 +42,21 @@ Neighbors up top all they do is f---.
 
 [hook]
 
-[this part is sung] OH mommy, daddy.
+[this part is sung]
+
+OH mommy...daddy.
 
 Your baby girl wants to come back home.
 
 Can your little girl come back home.
 
-mommy, daddy.
+mommy... daddy.
 
 Your baby girl wants to come back home.
 
-[this line sung in a baby voice.]Can your widdle  girl come back home
+[this line sung in a baby voice.]
+
+Can your widdle  girl come back home
 
 C2020Tccmardukson
 
